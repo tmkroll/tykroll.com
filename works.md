@@ -106,6 +106,10 @@ __[Dueling Contrabass Flutes (2020)](https://www.musicnotes.com/sheetmusic/mtd.a
 
 ## Handbells
 
+__[Carillon Overture (2025)](https://www.musicnotes.com/sheetmusic/mtd.asp?ppn=MN0302685)__
+
+My second composition for handbells, and my first for a larger scale ensemble, Madison Area Concert Handbells read Carillon Overture January 2025. MACH described it as a "tour de force" and noted there are some difficult instrument changes, but everything is doable. Carillon Overture is vaguely Sonata-shaped and fits the general 'fast, slow, fast' structure of a festival overture. While on the challenging side, it will bring a lot of energy to any concert. There are some heavily-chromatic fills the likes of which I'm not sure have been heard in any handbell music before. These passages are spelled enharmonically in favor of easy to reading for individual ringers.
+
 __[Prelude (2023)](https://www.musicnotes.com/sheetmusic/mtd.asp?ppn=MN0279581)__
 
 This is my first composition for handbells and I'm easing into the medium. You'll find this quite sparse and sublte. It was read by Madison Area Concert Handbells, June 2023. They told me it was fun and best suited to a small ensemble who know how to ring four-in-hand.
